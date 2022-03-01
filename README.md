@@ -7,5 +7,4 @@ As a result, it was verified that the formation of oligomers is influenced by th
 
 Finally, with sonication techniques, it was possible to have a more comprehensive perception of the effect of the interface on the formation of different oligomers in the aqueous phase. This approach can be important in the dissemination of knowledge by promoting the inclusion of people with visual impairments in interface science and petroleum engineering.
 
-Click the image below to get more details about this undergraduate research
-
+Youtube video to get more details about this undergraduate research: https://youtu.be/J20nfQDPJbc
